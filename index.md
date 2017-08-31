@@ -1,2 +1,0 @@
-## Munger Inventory
-Talenti Gelato
